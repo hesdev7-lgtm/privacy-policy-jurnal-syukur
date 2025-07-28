@@ -1,0 +1,1 @@
+# privacy-policy-jurnal-syukur
